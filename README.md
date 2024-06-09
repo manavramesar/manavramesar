@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **manav.data.analytics@gmail.com**
 
-- ⚡ Fun fact **My name is on the Perseverance Rover that is on Mars!**
+- ⚡ Fun fact: **My name is on the Perseverance Rover that is on Mars!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
